@@ -1,4 +1,4 @@
-![Thumbnail](https://github.com/yusufkisa/philanthropic/blob/main/donation%20(1).png)
+![Thumbnail](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhXM2kRd4pmfHykX0rkzvZC2EMKUFNT0l1VOwVX0m21Ly19rlykZz18mtjKur0QdttMskfzUjwnQMSQ4h4t8htE2BdYUBws7-E9ACLVVrJPqxJF5eZU6xZhdpAkWX9J-oLofuOnme7fdlzleh04KoLQT1Jby67rk1hmpuBw4hPhwRU1wObVl0_9MHxRBFsJ/s16000/donation1.png)
 # Philanthropic Leadership
 
 Mr. Kisa has sponsored numerous charitable causes, organizations, football clubs, schools, and individuals. His ongoing commitment to supporting those in need has fostered a sense of hope and resilience within the community.

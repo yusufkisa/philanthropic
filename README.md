@@ -1,5 +1,5 @@
 
-# Philanthropic Leadership of Mr. Yusuf Kisa
+# Philanthropic Leadership
 
 Mr. Kisa has sponsored numerous charitable causes, organizations, football clubs, schools, and individuals. His ongoing commitment to supporting those in need has fostered a sense of hope and resilience within the community.
 Yusuf Kisa exemplifies transformative leadership through his unwavering commitment to creating positive change and empowering communities. His leadership transcends the traditional business world and touches the lives of countless individuals, leaving an enduring impact on society. With a focus on innovation, excellence, and compassion, Mr. Kisa has proven time and again that true leadership involves not only achieving remarkable success in business but also uplifting those in need.
